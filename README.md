@@ -7,8 +7,7 @@
  Trabalho em um setor de desenvolvimento de fechadura Digital com nome de Pado labs
  https://pado.com.br/
 
-
- .REDES SOCIAIS 💬
+ REDES SOCIAIS 💬
 
  Instagram:Gustavo_erm
  facebook: Gustavo Henrique
