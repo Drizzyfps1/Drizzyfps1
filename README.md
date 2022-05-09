@@ -10,9 +10,10 @@
  REDES SOCIAIS 💬
 
  Instagram:Gustavo_erm
+ 
  facebook: Gustavo Henrique
 
-  🤔DUVIDA:mande um email.
-             💬 
+ 🤔DUVIDA:mande um email.
+              
  gustavo.moura@padolabs.com.br
  
