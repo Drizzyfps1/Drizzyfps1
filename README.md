@@ -1,7 +1,7 @@
 
   Olá 👋
-  Meu nome é:  Gustavo Henrique 
-  Tenho: 16 anos
+  Meu nome é: Gustavo Henrique 
+  Tenho: 17 anos
   Gosto muito de internet,Tecnologia  
 - 🔭Trabalho em uma empresa de cadeados,fechaduras,maçaneta,chaves etc...
  Trabalho em um setor de desenvolvimento de fechadura Digital com nome de Pado labs
